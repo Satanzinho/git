@@ -1,3 +1,3 @@
-É ISSO AI MEU CHAPA(um detalhizinho)
+É ISSO AI MEU CHAPA
 VOLTOU AO INICIO
 testando aqui
